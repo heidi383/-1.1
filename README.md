@@ -25,4 +25,4 @@
 
 
 유튜브 링크
-https://github.com/heidi383/-1.1
+https://www.youtube.com/watch?v=Fqr2fNRH4Dc
